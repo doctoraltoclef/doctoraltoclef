@@ -2,7 +2,7 @@
 he/they/etcetera | Asian
 <br>Adult above drinking age, don't owe you horses nothin past that.<br>
 <hr> <p></p>
-⩥ Mostly out here to hang out with my wife, Dr. ████ Myriad (he/they). You could say we're horsing around. <a href="https://mattastr0phic.tumblr.com/personnelfiles">Our Personnel Files.</a> <br>
+⩥ Mostly out here to hang out with my wife, Dr. ████ Myriad (he/she/they). You could say we're horsing around. <a href="https://mattastr0phic.tumblr.com/personnelfiles">Our Personnel Files.</a> <br>
 ⩥ I'm an adult and don't care for petty horse drama, please leave me out of it. <br> If you're a proshipper/pro-endo or any of the sort, hide me cause we ain't boutta change each others minds.<br>
 ⩥ I'm not here to roleplay. The only exception here is if you're funny enough, but that's a high bar. I don't suggest trying for it. <br>
 ⩥ Open to interacting with others that are interested in SCP. Most often off-tab, whisper recommended if you really want to talk.<br>
