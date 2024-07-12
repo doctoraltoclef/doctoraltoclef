@@ -16,4 +16,4 @@ Meanwhile, I encourage making rewrites or using Myriad, just please respect the 
 <p></p> That's all I'm up for givin y'all, hope your curiosity's been sated. <br></br>
 <IMG SRC="https://64.media.tumblr.com/7c28074c9483457899f53cf11ef4e8b4/863702178d0fbe28-9f/s1280x1920/14e44b887985e08be86886858312885a02ac9147.gif" width= 200>
 <h5>Do you recognize me? All the art here is mine. Thanks for thinking of me. :.]</h5>
-![](https://komarev.com/ghpvc/?username=doctoraltoclef&color=912310&style=plastic)
+![](https://komarev.com/ghpvc/?username=doctoraltoclef&color=912310)
