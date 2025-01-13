@@ -1,5 +1,5 @@
 <h3>▄︻デ══━一 💥 ☆ﾟ.･｡ﾟ 𝄡 Dr. Alto Clef 𝄡 ▄︻デ══━一 💥 ☆ﾟ.･｡ﾟ</h3>
-he/they/etcetera | Asian
+hy/þey/etcetera | Asian
 <br>Adult above drinking age, don't owe you horses nothin past that.<br>
 <hr> <p></p>
 ⩥ Mostly out here to hang out with my wife, Dr. ████ Myriad (he/she/they). You could say we're horsing around. <a href="https://mattastr0phic.tumblr.com/personnelfiles">Our Personnel Files.</a> <br>
